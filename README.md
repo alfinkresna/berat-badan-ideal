@@ -16,6 +16,10 @@
 ##### Normal
 ![IMG_20220723_142150](https://user-images.githubusercontent.com/75003444/180595319-ef460fb4-b97c-4dea-8c8e-e427a28ad782.jpg)
 
+##### Kelebihan Berat Badan
+![IMG_20220723_184201](https://user-images.githubusercontent.com/75003444/180603520-afe1be2a-9efd-4422-be9a-da92b51ca7b3.jpg)
+
+
 ##### Obesitas
 ![IMG_20220723_142237](https://user-images.githubusercontent.com/75003444/180595328-b83eec8f-ce37-4815-b3f8-aa7f995e4467.jpg)
 
